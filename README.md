@@ -5,7 +5,7 @@
 - 📫 You can email me at llarimo1@asu.edu
 - ⚡ Fun fact: I grew up in Vegas and had a very unique upbringing there, including getting tickets to shows from the entertainment director who is now an actor known for The Sopranos and Blue Bloods.
 
-![alt text](![Line drunk (1)](https://github.com/user-attachments/assets/7371ed20-8587-419a-acb5-82528684727a)
+![Line drunk (1)](https://github.com/user-attachments/assets/7371ed20-8587-419a-acb5-82528684727a)
 
 <!---
 llarimo1/llarimo1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
